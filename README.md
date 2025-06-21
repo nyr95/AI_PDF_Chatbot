@@ -83,4 +83,4 @@ Feel free to expand the documentation if necessary!
 
 leave a star to repo  
 Thank you 👋  
-tejas.teju02@gmail.com
+nagrajyr786@gmail.com
